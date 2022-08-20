@@ -3,7 +3,7 @@ Essential (or light) reading <br>
 Here will be all the required documents so you can fully enjoy and participate in our CAFE 2022 AGM! <br>
 ### table of contents
 [CAFE AGM 2022 AGENDA](#cafe-agm-2022-agenda)<br>
-[CAFE 2022 CONSTITUTION](#cafe-2022-constitution)<br>
+[CAFE 2022 CONSTITUTION](#cafe-2022-constitution---new)<br>
 [CAFE 2022 CONSTITUTIONAL AMENDMENT PROPOSAL - PRESENTED RATIONALE AND JUSTIFICATION](#cafe-2022-constitutional-amendment-proposal---presented-rationale-and-justification)<br>
 <br>
 
@@ -15,7 +15,7 @@ Here will be all the required documents so you can fully enjoy and participate i
 👉[back to top](#agm2022)
 <br>
 
-## CAFE 2022 CONSTITUTION 
+## CAFE 2022 CONSTITUTION - NEW
 **YELLOW HIGHLIGHTED NEW CHANGES, RED-MARKED STRIKETHROUGH OLD CONSTITUTION**<br>
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
@@ -27,6 +27,7 @@ Here will be all the required documents so you can fully enjoy and participate i
 
 ## CAFE 2022 CONSTITUTIONAL AMENDMENT PROPOSAL - PRESENTED RATIONALE AND JUSTIFICATION
 **AUG22 NOTE - As this proposal was submitted in April, presented rationale will be reflecting the state of the executive roles at the time**<br>
+**This proposal has since been approved by UMSU as is**<br>
 As the UMSU website has now expanded its capabilities to encompass further members of the wider executive team, the purpose of the amendment no longer covers this specific function. However, the rationale and spirit behind the proposal is still present, in favour of a more equitable executive committee.<br>
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
