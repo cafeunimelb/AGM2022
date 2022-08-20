@@ -16,7 +16,7 @@ Here will be all the required documents so you can fully enjoy and participate i
 <br>
 
 ## CAFE 2022 CONSTITUTION 
-YELLOW HIGHLIGHTED NEW CHANGES, RED-MARKED STRIKETHROUGH OLD CONSTITUTION
+**YELLOW HIGHLIGHTED NEW CHANGES, RED-MARKED STRIKETHROUGH OLD CONSTITUTION**<br>
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
 👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vS3A8G8h2j7Ymr_uYOPg4l7tnueu5TWp0jz33wVIkT05_XNxOZUwsXqjKdmUvj5BA/pub)
