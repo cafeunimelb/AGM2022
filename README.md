@@ -10,8 +10,9 @@ Here will be all the required documents so you can fully enjoy and participate i
 ## CAFE AGM 2022 AGENDA 
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022)
-<br>asdf<br>
-👉[table of contents](#table-of-contents)
+👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vS81ti8T2M7ggZJ1R-HEhQ7poJhgk851GvmLEZbbrWI5e1CzrWE6hSUrswBlr8qng/pub)<br>
+<iframe src="https://docs.google.com/document/d/e/2PACX-1vS81ti8T2M7ggZJ1R-HEhQ7poJhgk851GvmLEZbbrWI5e1CzrWE6hSUrswBlr8qng/pub?embedded=true" style="border:0px #ffffff none;" name="agenda" scrolling="yes" frameborder="1" marginheight="0px" marginwidth="0px" height="1000px" width="1000px" allowfullscreen></iframe>
+<br>👉[table of contents](#table-of-contents)
 👉[back to top](#agm2022)
 <br>
 
