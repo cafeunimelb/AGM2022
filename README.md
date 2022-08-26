@@ -29,7 +29,7 @@ Here will be all the required documents so you can fully enjoy and participate i
 ## CAFE 2022 CONSTITUTIONAL AMENDMENT PROPOSAL - PRESENTED RATIONALE AND JUSTIFICATION
 **AUG22 NOTE - As this proposal was submitted in April, presented rationale will be reflecting the state of the executive roles at the time**<br>
 **This proposal has since been approved by UMSU as is**<br>
-As the UMSU website has now expanded its capabilities to encompass further members of the wider executive team, the purpose of the amendment no longer covers this specific function. However, the rationale and spirit behind the proposal is still present, in favour of a more equitable executive committee.<br>
+As the UMSU website has now expanded its capabilities to encompass further members of the wider executive team, the purpose of the amendment no longer covers this specific function - the vice president role is now functional on the website and is able to perform as per executive team. However, the rationale and spirit behind the entire proposal is still present and ongoing, in favour of a more equitable executive committee.<br>
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
 👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vSc1qC2UM9VHWMxZ01mEeosm4tYobdrRjX3BtMUAIvux76JBOqXM9Pg3jaZ0FWacA/pub)
