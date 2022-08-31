@@ -5,6 +5,7 @@ Here will be all the required documents so you can fully enjoy and participate i
 [CAFE AGM 2022 AGENDA](#cafe-agm-2022-agenda)<br>
 [CAFE 2022 CONSTITUTION](#cafe-2022-constitution---new)<br>
 [CAFE 2022 CONSTITUTIONAL AMENDMENT PROPOSAL - PRESENTED RATIONALE AND JUSTIFICATION](#cafe-2022-constitutional-amendment-proposal---presented-rationale-and-justification)<br>
+[AGM POSITIONS EXPRESSION OF INTEREST AND VIDEO APPLICATION FORM](#agm-positions-expression-of-interest-and-video-application-form)
 <br>
 
 ## CAFE AGM 2022 AGENDA 
