@@ -37,3 +37,12 @@ As the UMSU website has now expanded its capabilities to encompass further membe
 <br>👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022)
 <br>
+
+## AGM POSITIONS EXPRESSION OF INTEREST AND VIDEO APPLICATION FORM
+👉[table of contents](#table-of-contents) 
+👉[back to top](#agm2022) 
+👉[google form](https://forms.gle/2u1DRY8oTtgXaZ3t7) <br>
+<iframe src="https://docs.google.com/forms/d/e/1FAIpQLScFAIgVfMYj8h_sjBjomo6L7UU8IK1ZQQssEVtFhfzIhc-n8Q/viewform?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
+👉[table of contents](#table-of-contents) 
+👉[back to top](#agm2022) 
+<br>
