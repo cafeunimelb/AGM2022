@@ -43,6 +43,35 @@ As the UMSU website has now expanded its capabilities to encompass further membe
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
 👉[google form](https://forms.gle/2u1DRY8oTtgXaZ3t7) <br>
+you may be wondering... what on earth do we do as a committee member!? <br>
+this year, it's been pretty vague (umm i promise it isn't that bad) <br>
+as an executive member, the division of labour has pretty much been to where the individuals' strengths lay (yes yes we were big on communication and teamwork x), so responsibilities overall include: <br>
+➡️ planning events (in conjunction with events team)<br>
+↪️ contacting event venues for event proposals... in person and via email! <br>
+↪️ we didn't get to do much of it this year, but consulting with the education officer as well, to host educational sessions regarding coffee... yes yes... for the future... also please keep covidsafety in mind... this year we weren't creative enough x<br>
+<br>
+➡️ drafting grants for the events (and well... we didn't do much of it this year, but anything the club needs too!) <br>
+↪️ learning understanding covidsafety and food safety is important to getting these approved! (do your free safe food handling cert x) <br>
+<br>
+➡️ writing emails (a lot...) <br>
+↪️ to cafes! (for events and sponsorship) <br>
+↪️ to members! (about events and sponsorships... is there a trend?) <br>
+↪️ yes yes... coordinating with social media managers to do promotional materials... yes yes <br>
+<br>
+➡️ negotiating and obtaining sponsorships (in conjunction with sponsorship team) <br>
+↪️ drafting the sponsorship agreement... <br>
+↪️ emailing the cafe for sponsorship terms, then finalising the agreement ... (yes... there's a lot of... emailing... 📨) <br>
+anyway <br>
+<br>
+assorted other stuff can include:<br>
+✨ meeting with other clubs for collaboration<br>
+✨ planning for university-wide events such as night market or open day<br>
+<br>
+that's the gist i think for now, for general responsibilities of the exec committee... <br>
+general committee are these roles but more specialised to their specific roles x <br>
+i have not included treasurer-specific details... because i'm not the treasurer <br>
+cheers x <br>
+happy running!<br>
 <iframe src="https://docs.google.com/forms/d/e/1FAIpQLScFAIgVfMYj8h_sjBjomo6L7UU8IK1ZQQssEVtFhfzIhc-n8Q/viewform?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
