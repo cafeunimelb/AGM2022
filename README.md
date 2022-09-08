@@ -8,9 +8,9 @@ Here will be all the required documents so you can fully enjoy and participate i
 [AGM POSITIONS EXPRESSION OF INTEREST AND VIDEO APPLICATION FORM](#agm-positions-expression-of-interest-and-video-application-form)
 <br>
 [Executive reports](#executive-reports)<br>
-		[President's reports](#presidents-report)<br>
-		[Treasurer's report](#treasurers-report)<br>
-		[CAMEO - Vice president's report](#cameo---vice-presidents-report)
+		[President's reports](#presidents-report) 👉[google doc](https://docs.google.com/document/d/1fBRUepa9vSddBL8mSiW_kKqlBiCfJpN7zBc0kQe3IMc/edit?usp=sharing)<br>
+		[Treasurer's report](#treasurers-report) 👉[google doc](https://docs.google.com/document/d/1P_73-BON6nZENJqO2Ehkm2ip4-V6mX96Vir2avwn0fw/edit?usp=sharing)<br>
+		[CAMEO - Vice president's report](#cameo---vice-presidents-report) 👉[google doc](https://docs.google.com/document/d/1yEIwyaBhCkHoWO6KcpTG3extIc27pOwfqMXcVGnPP4E/edit?usp=sharing)
 <br>
 
 ## CAFE AGM 2022 AGENDA 
