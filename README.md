@@ -7,10 +7,11 @@ Here will be all the required documents so you can fully enjoy and participate i
 [CAFE 2022 CONSTITUTIONAL AMENDMENT PROPOSAL - PRESENTED RATIONALE AND JUSTIFICATION](#cafe-2022-constitutional-amendment-proposal---presented-rationale-and-justification)<br>
 [AGM POSITIONS EXPRESSION OF INTEREST AND VIDEO APPLICATION FORM](#agm-positions-expression-of-interest-and-video-application-form)
 <br>
-[Executive reports](#executive-reports)
-  [President's reports](#presidents-report)
-  [Treasurer's report](#treasurers-report)
+[Executive reports](#executive-reports)<br>
+  [President's reports](#presidents-report)<br>
+  [Treasurer's report](#treasurers-report)<br>
   [CAMEO - Vice president's report](#cameo---vice-presidents-report)
+<br>
 
 ## CAFE AGM 2022 AGENDA 
 👉[table of contents](#table-of-contents) 
