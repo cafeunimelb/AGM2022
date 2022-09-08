@@ -63,7 +63,7 @@ As the UMSU website has now expanded its capabilities to encompass further membe
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
 👉[google form](https://forms.gle/2u1DRY8oTtgXaZ3t7) <br>
-<details><summary>read more</summary>
+<details><summary>click here to read more for roles description!</summary>
 <p>
 **roles descriptions for your enjoyment**, also available within the form<br>
 _ _**form will be below the descriptions**_ _
