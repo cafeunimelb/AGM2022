@@ -8,6 +8,9 @@ Here will be all the required documents so you can fully enjoy and participate i
 [AGM POSITIONS EXPRESSION OF INTEREST AND VIDEO APPLICATION FORM](#agm-positions-expression-of-interest-and-video-application-form)
 <br>
 [Executive reports](#executive-reports)
+  [President's reports](#presidents-report)
+  [Treasurer's report](#treasurers-report)
+  [CAMEO - Vice president's report](#cameo---vice-presidents-report)
 
 ## CAFE AGM 2022 AGENDA 
 👉[table of contents](#table-of-contents) 
@@ -40,6 +43,19 @@ As the UMSU website has now expanded its capabilities to encompass further membe
 👉[back to top](#agm2022)
 <br>
 
+## Executive reports
+👉[table of contents](#table-of-contents) 
+👉[back to top](#agm2022) <br>
+### President's report 
+👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vSc1qC2UM9VHWMxZ01mEeosm4tYobdrRjX3BtMUAIvux76JBOqXM9Pg3jaZ0FWacA/pub)
+### Treasurer's report 
+👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vSc1qC2UM9VHWMxZ01mEeosm4tYobdrRjX3BtMUAIvux76JBOqXM9Pg3jaZ0FWacA/pub)
+### CAMEO - Vice president's report 
+👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vSc1qC2UM9VHWMxZ01mEeosm4tYobdrRjX3BtMUAIvux76JBOqXM9Pg3jaZ0FWacA/pub)
+<br>👉[table of contents](#table-of-contents) 
+👉[back to top](#agm2022)
+<br>
+
 ## AGM POSITIONS EXPRESSION OF INTEREST AND VIDEO APPLICATION FORM
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
@@ -48,11 +64,6 @@ As the UMSU website has now expanded its capabilities to encompass further membe
 __**form will be below the descriptions**__
 <iframe src="https://docs.google.com/document/d/e/2PACX-1vR-g-5uy3JU56Ffde_XlmnPyTAebj3sSeWTgF3LGph9UiK-mbYSgc8pK_0tVZ9Zwih5KuyIGsioHPve/pub?embedded=true" width="640" height="640" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
 <iframe src="https://docs.google.com/forms/d/e/1FAIpQLScFAIgVfMYj8h_sjBjomo6L7UU8IK1ZQQssEVtFhfzIhc-n8Q/viewform?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
-👉[table of contents](#table-of-contents) 
+<br>👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) 
 <br>
-
-## Executive reports
-### President's report 
-### Treasurer's report 
-### CAMEO - Vice president's report 
