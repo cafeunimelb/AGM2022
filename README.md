@@ -54,7 +54,8 @@ As the UMSU website has now expanded its capabilities to encompass further membe
 👉[published google doc](https://docs.google.com/document/d/1P_73-BON6nZENJqO2Ehkm2ip4-V6mX96Vir2avwn0fw/edit?usp=sharing)
 <iframe src="https://docs.google.com/document/d/e/2PACX-1vSHsuAnv9cekeKPXddKCg52rFk2nBS9TJ6artEm7-dFnifENtPe2PeJNI-H2-neyDny0SS8bId7hYAc/pub?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe><br>
 ### CAMEO - Vice president's report 
-👉[published google doc](https://docs.google.com/document/d/1yEIwyaBhCkHoWO6KcpTG3extIc27pOwfqMXcVGnPP4E/edit?usp=sharing)<iframe src="https://docs.google.com/document/d/e/2PACX-1vQXPFqvoSkidxy0F2Jib8XHc4lCoPOpfQ3M2W3fNEhuSs92MGNovyZYgoecEHSmfcHQHqHrgngDpxB6/pub?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
+👉[published google doc](https://docs.google.com/document/d/1yEIwyaBhCkHoWO6KcpTG3extIc27pOwfqMXcVGnPP4E/edit?usp=sharing)
+<iframe src="https://docs.google.com/document/d/e/2PACX-1vQXPFqvoSkidxy0F2Jib8XHc4lCoPOpfQ3M2W3fNEhuSs92MGNovyZYgoecEHSmfcHQHqHrgngDpxB6/pub?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
 <br>👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022)
 <br>
