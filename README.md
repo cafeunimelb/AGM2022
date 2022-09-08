@@ -8,9 +8,9 @@ Here will be all the required documents so you can fully enjoy and participate i
 [AGM POSITIONS EXPRESSION OF INTEREST AND VIDEO APPLICATION FORM](#agm-positions-expression-of-interest-and-video-application-form)
 <br>
 [Executive reports](#executive-reports)<br>
-  [President's reports](#presidents-report)<br>
-  [Treasurer's report](#treasurers-report)<br>
-  [CAMEO - Vice president's report](#cameo---vice-presidents-report)
+		[President's reports](#presidents-report)<br>
+		[Treasurer's report](#treasurers-report)<br>
+		[CAMEO - Vice president's report](#cameo---vice-presidents-report)
 <br>
 
 ## CAFE AGM 2022 AGENDA 
@@ -48,11 +48,13 @@ As the UMSU website has now expanded its capabilities to encompass further membe
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022) <br>
 ### President's report 
-👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vSc1qC2UM9VHWMxZ01mEeosm4tYobdrRjX3BtMUAIvux76JBOqXM9Pg3jaZ0FWacA/pub)
+👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vRMV0To4kifE-0E_fV63SV4SiN17S8w1EOeANTjCh5Ef9_7KNyUUDDRue7ncJ5HAs5WC-bVJVVevalk/pub)
+<iframe src="https://docs.google.com/document/d/e/2PACX-1vRMV0To4kifE-0E_fV63SV4SiN17S8w1EOeANTjCh5Ef9_7KNyUUDDRue7ncJ5HAs5WC-bVJVVevalk/pub?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe><br>
 ### Treasurer's report 
-👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vSc1qC2UM9VHWMxZ01mEeosm4tYobdrRjX3BtMUAIvux76JBOqXM9Pg3jaZ0FWacA/pub)
+👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vSHsuAnv9cekeKPXddKCg52rFk2nBS9TJ6artEm7-dFnifENtPe2PeJNI-H2-neyDny0SS8bId7hYAc/pub)
+<iframe src="https://docs.google.com/document/d/e/2PACX-1vSHsuAnv9cekeKPXddKCg52rFk2nBS9TJ6artEm7-dFnifENtPe2PeJNI-H2-neyDny0SS8bId7hYAc/pub?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe><br>
 ### CAMEO - Vice president's report 
-👉[published google doc](https://docs.google.com/document/d/e/2PACX-1vSc1qC2UM9VHWMxZ01mEeosm4tYobdrRjX3BtMUAIvux76JBOqXM9Pg3jaZ0FWacA/pub)
+👉[published google doc](https://google.com)<iframe src="https://google.com" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
 <br>👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022)
 <br>
