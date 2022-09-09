@@ -10,9 +10,6 @@ Here will be all the required documents so you can fully enjoy and participate i
 [Executive reports](#executive-reports)<br>
 		[President's reports](#presidents-report) 👉[google doc](https://docs.google.com/document/d/1fBRUepa9vSddBL8mSiW_kKqlBiCfJpN7zBc0kQe3IMc/edit?usp=sharing)<br>
 		[Treasurer's report](#treasurers-report) 👉[google doc](https://docs.google.com/document/d/1P_73-BON6nZENJqO2Ehkm2ip4-V6mX96Vir2avwn0fw/edit?usp=sharing)<br>
-		[CAMEO - Vice president's report](#cameo---vice-presidents-report) 👉[google doc](https://docs.google.com/document/d/1yEIwyaBhCkHoWO6KcpTG3extIc27pOwfqMXcVGnPP4E/edit?usp=sharing)
-<br>
-
 ## CAFE AGM 2022 AGENDA 
 👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022)
@@ -53,25 +50,6 @@ As the UMSU website has now expanded its capabilities to encompass further membe
 ### Treasurer's report 
 👉[published google doc](https://docs.google.com/document/d/1P_73-BON6nZENJqO2Ehkm2ip4-V6mX96Vir2avwn0fw/edit?usp=sharing)
 <iframe src="https://docs.google.com/document/d/e/2PACX-1vSHsuAnv9cekeKPXddKCg52rFk2nBS9TJ6artEm7-dFnifENtPe2PeJNI-H2-neyDny0SS8bId7hYAc/pub?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe><br>
-### CAMEO - Vice president's report 
-👉[published google doc](https://docs.google.com/document/d/1yEIwyaBhCkHoWO6KcpTG3extIc27pOwfqMXcVGnPP4E/edit?usp=sharing)
-<iframe src="https://docs.google.com/document/d/e/2PACX-1vQXPFqvoSkidxy0F2Jib8XHc4lCoPOpfQ3M2W3fNEhuSs92MGNovyZYgoecEHSmfcHQHqHrgngDpxB6/pub?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
 <br>👉[table of contents](#table-of-contents) 
 👉[back to top](#agm2022)
-<br>
-
-## AGM POSITIONS EXPRESSION OF INTEREST AND VIDEO APPLICATION FORM
-👉[table of contents](#table-of-contents) 
-👉[back to top](#agm2022) 
-👉[google form](https://forms.gle/2u1DRY8oTtgXaZ3t7) <br>
-<details><summary>click here to read more for roles description!</summary>
-<p>
-**roles descriptions for your enjoyment**, also available within the form<br>
-_ _**form will be below the descriptions**_ _
-<iframe src="https://docs.google.com/document/d/e/2PACX-1vR-g-5uy3JU56Ffde_XlmnPyTAebj3sSeWTgF3LGph9UiK-mbYSgc8pK_0tVZ9Zwih5KuyIGsioHPve/pub?embedded=true" width="640" height="640" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
-</p>
-</details>
-<iframe src="https://docs.google.com/forms/d/e/1FAIpQLScFAIgVfMYj8h_sjBjomo6L7UU8IK1ZQQssEVtFhfzIhc-n8Q/viewform?embedded=true" width="640" height="1662" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
-<br>👉[table of contents](#table-of-contents) 
-👉[back to top](#agm2022) 
 <br>
